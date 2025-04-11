@@ -29,3 +29,6 @@ tecnological advancements have transformed march madness by enhancing the viewin
 3.normally to calm my stress i cry
 4. idk
 5. i talk this my grandma
+# April 7, 2025
+Artificial intelligence can be a very useful tool when it comes to preparing for important exams, such as standing. In Austin, the school has seen a huge improvement in its grading simply by using AI-enabled teachers, and it's quite inspiring. Tools like Chatgtt or Khanemigo can easily explain topics, offer internship problems, and even help understand confusing things. Instead of waiting to ask a teacher or look up a book, you can get answers and examples right away. It's like a personal teacher available all the time, saving time and making studying less stressful.
+For me, the most useful AI teacher function would be to help me get organized and focused. If I could set up a study plan, remember to take breaks or ask me questions about the subjects I struggled with the most that would be good. I think I would use it, especially if I knew you could actually improve my grade as happened to the students in Texas. Sometimes it's hard to know where to start or what to learn, so something that moves me step by step would be a great change.
