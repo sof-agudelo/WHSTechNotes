@@ -37,4 +37,23 @@ I think these restrictions can be advantageous in some respects, but they also h
 
 If these regulations were implemented at my school, I think it would be difficult to adjust at first, since we are so used to keeping our cell phones close at hand. If I couldn't use it even during recess or lunch, I would feel frustrated. However, if the rules were clear and allowed restricted use at appropriate times, I could accept it. I think a middle ground would be more appropriate: limit use during lessons, but allow it during breaks or when it is required for significant reasons.
 
+# April 14, 2025 
+Benefits of Cell Phone and Social Media Bans
+The recent legislation in Florida banning student cell phone use during the school day and restricting access to social media on school networks can be seen as beneficial to students. These measures aim to reduce distractions that often hinder learning, allowing students to focus more on their studies and engage with their teachers and peers. Furthermore, by limiting access to social media, schools may help mitigate instances of cyberbullying, creating a safer and more supportive environment for all students. With fewer distractions, students are likely to perform better academically and develop stronger interpersonal skills, as they are encouraged to interact face-to-face rather than through screens.
 
+Concerns and Personal Response
+However, there are valid concerns regarding the implications of such bans on student autonomy and emergency communication. In situations where students may need to contact their parents or guardians, having access to their cell phones can be crucial for their safety. If implemented in my school, I would advocate for a balanced approach that allows for responsible cell phone use while still maintaining a focus on learning. For instance, designated times for cell phone use could be established, enabling students to communicate when necessary without compromising their educational experience. Ultimately, it is essential to find a middle ground that promotes both safety and academic success.
+
+# April 22, 2025
+
+Dear Ms. Johnson,
+
+I hope this message finds you well. I am writing to express my heartfelt appreciation for the incredible impact you have had on my academic journey. Your unwavering support and dedication to your students have not gone unnoticed, and I wanted to take a moment to acknowledge the positive influence you have on our school community.
+
+Your ability to create an engaging and inclusive classroom environment has made a significant difference in my learning experience. I particularly appreciate the way you take the time to provide personalized feedback on our assignments, which has helped me improve my writing skills tremendously. Additionally, your encouragement during our class discussions has inspired me to share my thoughts more confidently and has fostered a sense of camaraderie among my peers.
+
+Thank you for being such a dedicated educator and for always believing in your students. Your passion for teaching and commitment to our success truly make a difference in our lives.
+
+Best regards,
+Sofia Agudelo Luna
+10 grade
