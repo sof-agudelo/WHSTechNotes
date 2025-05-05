@@ -57,3 +57,10 @@ Thank you for being such a dedicated educator and for always believing in your s
 Best regards,
 Sofia Agudelo Luna
 10 grade
+# April 28, 2025
+| Name     | Flavor | Occasion | Price |
+| :------- | :----- | :------- | :---- |
+| Sally    |   chocolate     | graduation         |35.00       | 
+| Michael  |  vanilla      | farewell party         |  37.00     | 
+| Emma     |  carrot      |       birthday   |   39.00    | 
+
